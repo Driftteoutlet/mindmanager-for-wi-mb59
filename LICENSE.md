@@ -1,4 +1,4 @@
-
+Get the ultimate MindManager for Windows addon with MindManager for Windows automatic Addon: presentation-mode & drag-and-drop. Featuring presentation-mode and drag-and-drop, it's
 
 
 
